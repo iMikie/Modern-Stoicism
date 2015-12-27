@@ -100,4 +100,126 @@ Even Enlightened Hedonism  takes effort.  Trips to discover new exiting things t
 I add meditation to Stoicism, it is "mindfulness" but is pretty much the opposite of Zen practices.  
 Story of the tree.
 
+The rise of Stoicism
+* what is the minimum here that I can just point to other sources.
+* Why did Stoicism arise?  Why was it popular?  Why did it die out?
+* 
+
+///Practical Stoicism
+Negative Visualization: What's the worse that can happen
+The Dichotomy of Control
+Fatalism, Let go of the past
+Self Denial: the dark side of pleasure
+Meditation
+
+History
+500-600BC philosophy leaps forward from seemingly no where arises in Italy, Greece, Confucius in China, Buddha in India.
+
+Pythagoras inItaly to Epicurus, rival to Stoics
+Anaximander to Socrates
+
+Before Socrates: scienctists.  After: study of men's souls.  How to live a good life and made it into a competitive business.  If it didn't perform, it would die out.
+
+Why God didn't cut it for me.
+Most religious people I know go off and from M-F behave like anyone else.  Some of the least ethical people I have experienced in my life have been the most religious.
+
+Hutterites:  would you do that?
+
+I want a philosophy (or religion if you want) that does tell me how to live my life but it can't be "because God tells us so."  Having never talked directly to God myself I only know what others tell me God says to do and they are never consistent.  So when someone say, "God says this..." my answer is, "so you say."  
+
+Do this not because God says so but...
+ * because this will ultimately make you happy.
+ * because this will cut down the noise and negative emotions
+ * this will prevent you from being taken advantage of
+ * this will prevent you from being needlessly hurt.
+ * this will help you make better decisions when you can't make up your mind
+ * 
+I'm also quite wary of people who tell me that God says to give them my money.  Or that God has allowed them to break rules of common decency.
+
+Gods rules run delayed behind societies rules.
+
+
+Fraturnity excercise
+
+Zeno of Citium
+
+Why not cynic (page 29, joy)
+What sort of woman makes the best wife?  None, no matter what, you will regret marrying her.  If she is pretty you won't have her to yourself.  If she's ugly, you will.
+
+Pay attention to your enemies for, for they are the first to discover your mistakes. --Antisthenes
+
+Diogenes of Sinope (also relate the Alexander story) "the gods have given to men the means of living easily, but this has been put out of sight because we desire lots of things we don't really need.  Can't get of the rat race merry-go-round.  For years I sat, not knowing what I liked to do.  And if I cut down my lifestyle I could live forever simply.  
+
+Diogenese: be prepared for every fortune.  If it doesn't take you by surprise, it's power to hurt you is less.
+
+Cynics:  avoid all "good things", comforts, security because these might be taken away from you.  To me this is like saying beat yourself every day with a whip because some day someone might do that to you.  
+
+Stoics: creature comforts are fine, just don't get attached to them.  To make sure you aren't, give them up periodically and live simply.  You'll find that you are just as happy.  Seneca was one of the richest men in Rome.  Had it all confiscated by Claudius who banished him and he was just as happy on Corsica, eventually to rise again.
+
+Zeno: Logic and reasoning, prove all things and hold fast to that which is true. the truth will set you free.  an assertion to be sure.
+
+Physics or science was part of Zeno.
+Ethics: what do we need to do to live well and flourish.  Virtue is not about sex.
+Virtue for a human is doing what a man is designed to do. Reason (logic and science) were to help us discover what that is.  Ethics is how to do it.
+ * what were we designed to do?
+  * hunger-eat
+  * sex - reproduce
+  * cooperate with others, without that nothing is possible
+  * from that many rules and behaviors follow.
+  * user our reason... be reasonable
+  * 
+
+Why these?  
+
+Virtue, logic, science abandoned by the Romans who valued tranquility.
+
+Romans had less confidence that the Greeks in the power of pur reason to motivate people.  -- probably right. But it's big for me so I like it.  Romans believed that men would follow their baser passions and that those would end up in unhappiness was more motivating.
+
+Sugarcoat virtue with tranquilty.  Tranquiltiy was a selling point and so adopted.  Is tranquility important to you?  It is getting more and more so to me as I get older but adventure and challenge were more important early in my life.  Can we apply Stoicism to that?
+
+I don't like parties.  Which should I go to.  Which can I happily refrain from?  
+
+Seneca's essay, On the Happy Life, written for his elder brother Gallio the very same mentioned in Acts 18:12-16 for hisrefusal to try St. Paul in Corinth.  page 45.  
+
+Tranquilty: use our reason to drive away "all that excites or affrights us." If we do this ther ewill ensue "unbroken tranquility and enduring freedom". 
+Constand cheerfulness and a joy that is deep and issues from deep within, since he finds delight in his own resources, and desire no joys greater than his inner joys."  No idea of what that last phrase means.  Joys of the flesh are "paltry and trivial and fleeting" page 48
+
+Musonias: studying philosophy should affect us personally and profoundly; indeed, when a philosopher lectures his words should make those in his audienceshudder and feel ashamed. (what in God's sake for?). When he is done speaking, they shoudl, rather than applauding him, have been reduces to silence.  Why?  I should be elated instead.  If what I have been doing is truly not the road to happiness then I shoudl be pretty happy to have discovered a better road.  I'm not into the guilt trip for guilt trip sake.  "laying before them traits of which they were secretly ashamed."  Why so?  Be happy at an opportunity to improve.  If you can't then you will be less happy than you could have.  
+
+Must participate in the world, unlike the Epiciurians.
+
+Epictitus: ideal pupil: someone who will be satisfied if he can "live untrammelled and untroubled," as someone who seeks to be "tranqauil and free from turmoil."
+ page 51
+ 
+ Just like wood is the medium of the carpenter and bronze is the medium of the sculptor, your life is the medium on which you practice the art of living. page 51  Thus as a master carpenter teaches a student the tricks and tools of the trade show should the philosopher teach his student the tools and tricks of life. 
+ 
+ Zeus admits he is not all powerful and could not give man sound body and existence free and unhapmered.  But since he couldn't he gave man reason and choice, desire and aversion. Make use of it and you won't be frustrated or unhappy.  
+ It is difficulties that show us what we are.  54  
+ 
+Reversals in life should, rather than derail you, serve to test and refine your ability to deal with it.  LIve in accordance with nature.
+
+marcus Arelius - last of the good emperors.  
+
+The philosphers denegration non philosophical people as those "working hard to be able to afford the latest consumer gadget, in the resolute belief that if only they buy enough stuff, they will have a life that is both meaningful and maximally fuilfilling." 
+
+Doesn't pass the front door test.  Those who I have known like this are few and far between.  Most people I know are driven by a dedication to their children, making ends meet which now takes two incomes.  They need a car to get to work and, yes, they'd like it to be a nice one but though I see some stirving for status and income as a sign of status and importance, that is the goal, not to have the latest consumer gadget.  Teenagers that do are typically falling into the need of that age to stand out.  To gain the status within their group that will allow them to get a mate.  That's normal and human.  If philosphy has something to say it's has to deal with status, and mating.
+
+Begin each day by telling yourself: Today I shall be meeting with interference, ingratitude, insolence, disloyalty, ill-will and selfishness--all of them due to the offenders' ignorance of what is good or evil."
+
+Page 58: the good emperors
+
+Why did Stoicism fall into decline?
+
+
+
+
+
+OK, how do you do that?  
+
+
+
+
+
+
+
 
