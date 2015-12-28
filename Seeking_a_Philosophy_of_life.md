@@ -216,6 +216,28 @@ Why did Stoicism fall into decline?
 
 OK, how do you do that?  
 
+//Obstacle is the Way
+Appears to be about attacking obstacles.  "the secret", ancient and used by great people throughout history, now revealed.  Please.
+
+MA:
+Objective judgemeht, now at this very moment
+Unselfish action, now at this very moment
+Willing acceptance--now at this very moment--of all external events (i.e. things you cannot control)
+That's all you need.
+
+(that's all you get too)
+
+JD Rockefeller: staying cool when times were bad.  pretty vague.  remove emotion, think how can I take advantage of the situation.
+
+MA: Choose not to be harmed -- and you won't feel armed.  Don't feel harmed --and you aven't been.  
+(I hate bullshit like that. What do you mean, "choose not to be harmed"?  I'm sure people choose to be harmed.  Your leg is blown off...some banker loses your fortune: don't feel harmed.  What? and you haven't been?  Tell that to the guy missing the leg or the guy losing his house.  
+
+Hurricane Carter: make the best of a bad situation.  Big deal.  However something that the Stoics said was to not get attached to our possessions, our status, those can be taken away.  Your thoughts, are your own--make them what defines you.  You can actually act on that set aside time each day to think your best, use that to define you, not your possessions.  Control your reactions and take pride in your reason, judgement and actions: that's what to be proud of -- even as if there were a god watching.  Then feel no different about hunger or being homeless as you would on a backpacking trip where an avalanche destroys your camp.  Did someone do it to you?  OK, what can you actually affect right now (maybe it's time to stop and do something, maybe there are more pressing matters), what can you watch out for in the future? 
+
+Shakespeare: Nothing either good or bad, but thinking makes it so."  True, to an extent.  You can't just lie to yourself.  And things do always happen for a reason.  
+
+Think of a SIM city game the children of the leaders are made to play as part of their education.  It is a given that at least once after building up wealth, they will lose it all.  It's also known that the proctors cause this usually (sometimes it's just in the game).  Thus the players expect it and know that it's just a test.  In fact if you haven't had this happen to you, that's a bad sign: it means the proctors don't think you are doing well enough.  When one character lost everything, rather than being beaten and collapsing, he was ecstatically happy.  He had made it!  He had been selected!  The first time this happened he was dejected.  His armies had been defeated, his cities laid waste.  He was brought before the proctors who were all smiling (the basterds).  Congradulations they said.  You are happy in my defeat, I shall not forget this.  I hope not!  Did we cause this?  Yes, of course.  This is your reward. We only do this to those who have so excelled.  What?  This is a reward?  Indeed it is, young man.  Only the best get this.  Now you can rebuild.  Show us how well you do.  The record for any graduate of this academy, said another, is 3 destructions.  Who was that?  Your class is named after him.  Would you beat his record?  It's stood for 200 years.  You are lucky.  Rejoice.  Your destruction has happened in your 2nd year here.  You are ahead of his record now.  Pray your second failure comes in year 3.  Can I prepare for that?  We suggest that you do.  Lay a little aside.  Explore markets and regions you can exploit without resources and be ready for the next fall so you hit the ground running. Train your lieutenants well and be ready to deploy them.  But don't let us catch you plotting your own failure.  Fear not, we'll take you down when you have proven yourself and not a moment sooner.  Then there proceeded a couple of wagers between the proctors as to how fast he would rise.  There was even a dissenting voice or two.  You see young man, you have just begun.  There is only one rule we insist upon and I'm sure it will be easy for you to follow.  What's that?  You are not allowed to tell anyone what we have told you here.  You must never speak of it.  That will ruin it for the others and it will make you seem more attractive a leader if you don't dwell on it anyway.  Treat this as a learning experience which it is and we look forward to seeing you hear again soon the next time, and as my money is down, the next two times.
+Then they all stood and applauded.  Dismissed he left the hall and his friends never knew why his pace had quickened and his determination was renewed.  As instructed, he never spoke of it but got to work and the others thought him a great leader for it.  Later when this happens to members of his class in real life they are not much upset by it, but even by habit they have planned ahead.  They even take it lightheartedly as a challenge because that's how they'd been taught.  They always, plan for failure and wrack their brains to see how it might happen.  Assume it will happen.  When it does, they are always prepared.  What is the worse that can happen.  They spend some time each day thinking of that.  Oh, and upon graduation they informed him: they had never interferred in the first place. But failures happen.  They just do.
 
 
 
